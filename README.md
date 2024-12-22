@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on nothing rn
 - 📫 How to reach me, disc: aakash0_0, insta: aakashghosh669, email: aakash.kumar.ghosh@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am cool
+- ⚡ Fun fact: I am learning to code
+- Imagine Imagining Imaginative Imagination
 
 <!---
 Aakash-Ghosh08/Aakash-Ghosh08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
