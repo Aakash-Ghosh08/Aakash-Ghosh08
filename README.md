@@ -2,7 +2,7 @@
 - 👀 I’m interested in simulations and game developement
 - 🌱 I’m currently learning web dev, unity, integrating vr into games
 - 💞️ I’m looking to collaborate on nothing rn, but if you have a cool project hmu!!
-- 📫 How to reach me, disc: aakash0_0, insta: aakashghosh669, email: aakash.kumar.ghosh@gmail.com, secondary email: 1041643@lwsd.org (I am no longer using discord or instagram)
+- 📫 How to reach me: email: aakash.kumar.ghosh@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am learning to code, check out my YouTube: https://www.youtube.com/@aakashghosh6631/videos
 - Imagine Imagining Imaginative Imagination
